@@ -1,0 +1,5 @@
+Saturnus is van de zon af gerekend de zesde planeet in ons zonnestelsel en op Jupiter na de grootste.
+Beide zijn gasreuzen en zogenaamde 'buitenplaneten'.
+Saturnus is vernoemd naar de Romeinse god van de landbouw, Saturnus.
+Saturnus is al sinds de prehistorie bekend.
+
